@@ -1,4 +1,4 @@
-## Hi there 👋
+## Hi there...Just a guy who is curious whether ai will doom us or we will doom ourselves!!
 
 <!--
 **shettyashi/shettyashi** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
